@@ -1,2 +1,2 @@
-Para los wireframes e utilizado la aplicación Miro.
+Para los wireframes e utilizado la aplicación Miro.   
 Desktop: [Ver wireframe](https://miro.com/welcomeonboard/OW5QMW1DMEtzZ1I1VWU4WUVRWEpzOVNGa2dxbzhUNk9Vb3ZTdGdvaWxsRGlGMDhsSW1VRkRrRll1Z202K28zMlNmMWlUOElPbXpUdi9YWjd1ZjVkNDVjenlTZFNTUG9ndmowczIrN1FDbmhvT0UxY1VXenMwWjZsODZuLzZsbkFQdGo1ZEV3bUdPQWRZUHQzSGl6V2NBPT0hdjE=?share_link_id=758555143144)
